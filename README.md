@@ -12,6 +12,3 @@
 
 > iphone view
 
-
-
-[⬆ Voltar ao topo](#2-reviews)<br>
